@@ -19,4 +19,4 @@ I don't care about AI hype. I care about math, ROI, and workflows that actually 
 
 #### 📬 Let's Debate Tech
 *   **Blog:** [AI NY City](https://www.ainycity.com)
-*   **X (Twitter):** [@YourTwitterHandle](https://twitter.com) *(Update this link later if you create one)*
+*   **X (Twitter):** [@rifinjosh](https://twitter.com](https://x.com/rifinjosh)
